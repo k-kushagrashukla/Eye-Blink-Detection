@@ -20,5 +20,4 @@ It'll say print `S`
 (Ab yahan par main , apna khoobsurat chehra nhi dikhaunga , aank maarte hue 😉, Varna samaj kya sochega mere baare mein 🫣)
 
 ---
-ThankYou For Reading :)
 
